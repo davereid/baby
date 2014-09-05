@@ -4,4 +4,6 @@
 
 ## Results
 
+The builds finally passed on Oct 15, 2012!
+
 ![Picture](https://raw.githubusercontent.com/davereid/Pascal/1.x/oliver.jpg)
