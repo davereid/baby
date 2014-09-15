@@ -6,5 +6,5 @@
 
 ## Baby Pool
 
-http://babybookie.com/pools/5612-reid-baby/bets/new
+http://babybookie.com/pools/5612-reid-baby-2-x/bets/new
 
