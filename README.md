@@ -4,6 +4,7 @@
 
 @davereid and [@jenreidreads](https://www.twitter.com/jenreidreads) are having a baby, scheduled for release in March 2015!
 
+## Baby Pool
 
-
+http://babybookie.com/pools/5612-reid-baby/bets/new
 
